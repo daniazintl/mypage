@@ -1,1 +1,1 @@
-https://danidani1.github.io/mypage/
+https://daniazintl.github.io/mypage/
